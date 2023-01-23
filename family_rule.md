@@ -36,8 +36,8 @@ Table manners
 
 
 
-Some details :
-
+# Some details :
+## eat
 1. If not eat properly, there no sweety between this and next dinner
 2. In in one week, if have not eat properly twice, there is no sweet ice food for that week,
 3. If in one week, if not eat properly 3 times, there is no sweet food for that week. 

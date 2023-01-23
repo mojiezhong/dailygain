@@ -2,37 +2,37 @@ We the People of the Mo family, in Order to form a more perfect Union, establish
 provide for the common peace, promote the general Welfare, and secure the Blessings of Liberty to ourselves and our Posterity, 
 do ordain and establish this rule for the family.
 
-Article. I.
+# Article. I.
 
-Show respect and kindness to each other at all times.
-Communicate openly and honestly with one another.
-Set clear boundaries and expectations for behavior.
-Take responsibility for your actions and apologize when necessary.
-Show appreciation and gratitude for each other.
-Be supportive and understanding of each other's goals and dreams.
-Be willing to compromise and work through conflicts.
-Spend quality time together regularly.
-Show affection and physical touch.
-Take care of physical and emotional needs.
-Set a common goal for the family, and work together to achieve it.
-Encourage independence and personal growth.
-Maintain a positive attitude and refrain from negative criticism.
-Respect and maintain boundaries of privacy.
-Have a plan for handling emergencies, and review it regularly.
+1. Show respect and kindness to each other at all times.
+1. Communicate openly and honestly with one another.
+1. Set clear boundaries and expectations for behavior.
+1. Take responsibility for your actions and apologize when necessary.
+1. Show appreciation and gratitude for each other.
+1. Be supportive and understanding of each other's goals and dreams.
+1. Be willing to compromise and work through conflicts.
+1. Spend quality time together regularly.
+1. Show affection and physical touch.
+1. Take care of physical and emotional needs.
+1. Set a common goal for the family, and work together to achieve it.
+1. Encourage independence and personal growth.
+1. Maintain a positive attitude and refrain from negative criticism.
+1. Respect and maintain boundaries of privacy.
+1. Have a plan for handling emergencies, and review it regularly.
 
 
 Table manners 
 
-Make an effort to eat meals together as a family as often as possible.
-Turn off electronics during meal times to promote conversation and connection.
-Show gratitude for the food and the person who prepared it.
-Be mindful of portion sizes and healthy eating habits.
-Encourage everyone to try new foods and flavors.
-Take turns cooking meals or planning menus.
-Avoid negative or critical comments about food or meal choices.
-Clean up after meals together and assign tasks fairly.
-Have a designated spot for family meals and set the table with care.
-Use meal times to catch up on each other's day and share news.
+1. Make an effort to eat meals together as a family as often as possible.
+1. Turn off electronics during meal times to promote conversation and connection.
+1. Show gratitude for the food and the person who prepared it.
+1. Be mindful of portion sizes and healthy eating habits.
+1. Encourage everyone to try new foods and flavors.
+1. Take turns cooking meals or planning menus.
+1. Avoid negative or critical comments about food or meal choices.
+1. Clean up after meals together and assign tasks fairly.
+1. Have a designated spot for family meals and set the table with care.
+1. Use meal times to catch up on each other's day and share news.
 
 
 
